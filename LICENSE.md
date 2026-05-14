@@ -1,4 +1,4 @@
-#  
+#  build a boat for treasure Scripts new is the best build a boat for treasure Script, featuring auto-collect and invisibility. Safe and powerful for
 
 
 
